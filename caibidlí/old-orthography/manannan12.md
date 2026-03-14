@@ -131,7 +131,7 @@ cionntaċ sinn,” arsa Máirtín le hÁmón.
 Níor ḋein Ámón aċ gáire breáġ suḃáilceaċ a ċur
 as.
 
-“B’ḟéidir é,” ar seisean. “Deineann an tÁrd-
+“B’ḟéidir é,” ar seisean. “Deineann an tÁrd-Ṁáiġistir 
 Ṁáiġistir a ḋíċeall ar an bpíonós a ċur i n-oireaṁaint
 do’n ċoir is cúis leis. Féaċ,” ar seisean, “an ḃfeiceann
 siḃ an fear san ṫall annsan ar an gcasán eile?”
